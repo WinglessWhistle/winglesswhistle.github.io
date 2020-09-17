@@ -15,5 +15,4 @@ You can follow me on this journey by joining the [Discord Server](https://discor
 
 ## Contact
 You find me:
-- [Discord](https://discord.gg/NDuwKd5)
 - [Twitter](https://twitter.com/winglesswhistle)
